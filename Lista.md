@@ -7,3 +7,4 @@
 4. Satanas - Mario Mendoza
 5. Los juegos del hambre - Suzanne Collins
 #cambio #3
+6. de aqui en adelnate vamos con libros solo de terror
